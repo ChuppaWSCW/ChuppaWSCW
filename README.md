@@ -1,4 +1,4 @@
 # ChuppaWSCW
 
 ##### About Me
-# I play basketball (Yippe!)
+# I'm a chill person and I don't do much but just hangout
